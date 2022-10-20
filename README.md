@@ -35,5 +35,5 @@
 
 **Gildo Nascimento**
 
-- LinkedIn - [Visit my LinkedIn](hhttps://www.linkedin.com/in/gildonascimento/)
+- LinkedIn - [Visit my LinkedIn](https://www.linkedin.com/in/gildonascimento/)
 - E-mail - [Contact Me](mailto:bcgildo@gmail.com)
